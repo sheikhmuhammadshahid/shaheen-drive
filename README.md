@@ -99,7 +99,7 @@ We may update this Privacy Policy from time to time. Changes will be effective w
 
 If you have any questions or concerns about this Privacy Policy, please contact us:
 
-Shaheen Drive Support TeamEmail: [Insert Email Address]Phone: [Insert Contact Number]
+Shaheen Drive Support TeamEmail: sheikhmuhammadshahid123@gmail.com Phone: +923061523157
 
 Thank you for trusting Shaheen Drive with your data. Your privacy is our priority.
 
